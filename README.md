@@ -1,0 +1,1 @@
+# demo_trader_images
